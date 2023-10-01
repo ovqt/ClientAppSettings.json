@@ -1,1 +1,1 @@
-To optimze ROBLOX.
+This file is for optimzing ROBLOX.
